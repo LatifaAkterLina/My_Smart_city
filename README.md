@@ -1,1 +1,0 @@
-# My_Smart_city
